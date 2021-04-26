@@ -1,2 +1,2 @@
 # HomeHUB
-this is just for random projekts of mine
+this is just for some random projekts 
